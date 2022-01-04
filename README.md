@@ -1,0 +1,1 @@
+Uma receita de strogonoff de frango bem simples e rapida
